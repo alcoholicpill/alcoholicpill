@@ -4,6 +4,6 @@
   
 [![Alt text](https://pbs.twimg.com/media/HDZqMOcasAA2jrK?format=jpg&name=large)](https://x.com/KozmoXPP/status/2032929047039132075)
 
-[main](https://github.com/whifies/)⠀⠀── .✦⠀⠀[atabook](https://whifies.atabook.org/)
+[main](https://github.com/whifies/)⠀⠀── .✦⠀⠀[rentry](https://rentry.co/whifiesistaken)⠀⠀── .✦⠀⠀[atabook](https://whifies.atabook.org/)
 
 </div>
