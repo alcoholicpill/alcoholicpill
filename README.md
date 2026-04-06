@@ -2,8 +2,6 @@
  
 [![Hits](https://hits.sh/github.com/whisfies.svg?label=forget%20me%20not&color=0047ab&labelColor=2b2a2a)](https://hits.sh/github.com/whisfies/)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&duration=3000&pause=200&color=FFFFFF&center=true&multiline=true&repeat=false&height=60&lines=One+more+time+%2C+together+on+the+ride;Through+the+black+and+white+and+grey)](https://git.io/typing-svg)
-
 <img width="1200" height="70" alt="test" src="https://github.com/user-attachments/assets/dcd54231-7851-430a-85ac-dd93fd0f9612" />
 <br>
 <br>
