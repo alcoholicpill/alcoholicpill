@@ -7,7 +7,7 @@
 <br>
 
 <a href="https://x.com/carrot_car78989/status/2033550403405558260">
- <img src="https://pbs.twimg.com/media/HDifSCUWkAAexFI?format=jpg&name=large" width="800" />
+ <img src="https://pbs.twimg.com/media/HDifSCUWkAAexFI?format=jpg&name=large" width="700" />
 
 <br>
 <br>
