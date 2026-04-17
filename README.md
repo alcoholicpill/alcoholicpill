@@ -6,16 +6,12 @@
 <br>
 <br>
 
-<a href="https://x.com/carrot_car78989/status/2033550403405558260">
- <img src="https://pbs.twimg.com/media/HDifSCUWkAAexFI?format=jpg&name=large" width="700" />
+<a href="https://x.com/stroberriemilkk/status/2040714230392041522">
+ <img width="500" height="500" src="https://github.com/user-attachments/assets/5702320d-5100-4c81-b728-f33884532791"/>
+</a>
 
-<br>
-<br>
+explode him plz /j
 
-[main](https://github.com/whifies/)⠀⠀── .✦⠀⠀[rentry](https://rentry.co/whifiesistaken)⠀⠀── .✦⠀⠀[atabook](https://whifies.atabook.org/)
-
-<br>
-<a href="https://x.com/bananana2217/status/2035030023179313415">
- <img src="https://pbs.twimg.com/media/HD3hA1LasAEjKvq?format=jpg&name=large" width="400" />
+[rentry](https://rentry.co/whifiess)⠀⠀── .✦⠀⠀[atabook](https://whifies.atabook.org/)
 
 </div>
